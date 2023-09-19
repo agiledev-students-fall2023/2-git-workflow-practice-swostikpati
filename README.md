@@ -9,3 +9,6 @@ I was also really into the way she talked about the balance between learning fro
 
 
 ###The article looks nice - Comment made by Avinash gyawali
+
+**Comment from Hasibur:** 
+I really enjoyed reading your comment about Khubi Shah's article. It was really thoughtful and insightful. I especially liked how you related your own experiences to hers, and how you talked about your plans for the future. 
