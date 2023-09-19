@@ -7,5 +7,8 @@ Reading Khubi Shah's article about her internship experience at Pinterest really
 
 I was also really into the way she talked about the balance between learning from mentors and owning her own projects. It sounds like Pinterest gives you the freedom to actually make a difference, not just fetch coffee or do busywork. I've been reading up on agile methods in my courses, so hearing that she got hands-on experience with that stuff during her internship was super encouraging. It's a good nudge for me to look for internships that let me get my hands dirty with real projects and learn from the pros at the same time.
 
+
+###The article looks nice - Comment made by Avinash gyawali
+
 **Comment from Hasibur:** 
 I really enjoyed reading your comment about Khubi Shah's article. It was really thoughtful and insightful. I especially liked how you related your own experiences to hers, and how you talked about your plans for the future. 
